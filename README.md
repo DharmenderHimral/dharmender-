@@ -3,7 +3,7 @@
   <h2>The Ultimate Travel Blog 🌍✈️ for You </h2>
 </div>
 
-![Preview Image](https://www.google.com/imgres?q=kusum%20himral&imgurl=https%3A%2F%2Fyt3.googleusercontent.com%2FUPE88bnKwCUToqQzrkvCaSPbTT2nDueTDu1D-_j2EEYBS2b0n2btyHSyC3BIGIyI-q0VzKmqgQ%3Ds900-c-k-c0x00ffffff-no-rj&imgrefurl=https%3A%2F%2Fm.youtube.com%2F%40KusumHimral&docid=lZ4ZG894QUwDsM&tbnid=OiWOMQoDqwwUGM&vet=12ahUKEwjLr_201--JAxXwT2wGHehzOjgQM3oECGsQAA..i&w=900&h=900&hcb=2&ved=2ahUKEwjLr_201--JAxXwT2wGHehzOjgQM3oECGsQAA)
+![Kusum Himral"s Immage](https://www.google.com/imgres?q=kusum%20himral&imgurl=https%3A%2F%2Fyt3.googleusercontent.com%2FUPE88bnKwCUToqQzrkvCaSPbTT2nDueTDu1D-_j2EEYBS2b0n2btyHSyC3BIGIyI-q0VzKmqgQ%3Ds900-c-k-c0x00ffffff-no-rj&imgrefurl=https%3A%2F%2Fm.youtube.com%2F%40KusumHimral&docid=lZ4ZG894QUwDsM&tbnid=OiWOMQoDqwwUGM&vet=12ahUKEwjLr_201--JAxXwT2wGHehzOjgQM3oECGsQAA..i&w=900&h=900&hcb=2&ved=2ahUKEwjLr_201--JAxXwT2wGHehzOjgQM3oECGsQAA)
 
 <hr>
 
